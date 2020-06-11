@@ -1,2 +1,2 @@
 # Welcome_bot
-It welcomes newcomers
+welcome bitch how you doin
